@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Machine Learning**
 
-- 📫 How to reach me **priyaveerabomma@gmail.com**
+- 📫 How to reach me **priya.veerabomma1@gmail.com**
 
 - ⚡ Fun fact **Bananas are berries, but strawberries aren't!**
 
